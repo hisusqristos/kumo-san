@@ -5,3 +5,5 @@ Following someone else's patters can lead to losing hundreds of opportunities of
 
 | ![image](https://github.com/hisusqristos/sardostain/assets/85686319/5143d278-0313-481e-a4a1-f02ba61104e8)|![image](https://github.com/hisusqristos/sardostain/assets/85686319/a20c0af9-6f1a-4b72-8d98-98c8f390aa37)|
 | ----------- | ----------- |
+
+[Anna Laura's art ♡](https://twitter.com/annalaura_art)
