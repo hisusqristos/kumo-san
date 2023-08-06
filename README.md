@@ -3,7 +3,7 @@ Crocheting may seem repetitive (tho it asctually is repetitive). You search for 
 
 Following someone else's patters can lead to losing hundreds of opportunities of having your own crochet adventures. In fact, there's something arithmetical about crocheting. Especially when there is an abstract shape to recreate. So i will document the patterns i came up with while making stuff. Have a nice day -,-@ </br>
 
-Update: At the moment i started crocheting more amigurumi. Amigurumi itself allows you improvise a lot with shpes, colors, size and so on. You can even create non existing animals, which im currently stuck on. I believe every animal would look better with tentacles and extra body parts, so im currently trying to crochet tentacles.
+Update: At the moment i started crocheting more amigurumi. Amigurumi itself allows you improvise a lot with shpes, colors, size and so on. You can even create non existing animals, which im currently stuck on. I believe every animal would look better with tentacles and extra body parts, so now i tend to crochet more tentacles.
 
 <details>
 <summary>Ne tak li?</summary>
