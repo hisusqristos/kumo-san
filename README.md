@@ -1,3 +1,5 @@
+Update: Project abandoned, ne opyat a snova
+
 # tldr: DIY patterns
 Crocheting may seem repetitive (tho it asctually is repetitive). You search for the patterns, watch tutorials, spend hours of repeating the same stitch over and over until you're finally done. (btw my mom wears my projects). </br>
 
